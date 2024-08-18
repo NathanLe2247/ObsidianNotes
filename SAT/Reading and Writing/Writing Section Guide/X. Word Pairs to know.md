@@ -1,0 +1,6 @@
+- Accept (to agree to) / Except (excluding)
+- Affect (to influence) / effect (result)
+- Complement (something that completes) / compliment (praise)
+- Elicit (to draw out) / illicit (forbidden by law)
+- Principal (main) / Principle (fundamental belief or rule)
+- Stationary (not moving) / Stationery (writing materials)
